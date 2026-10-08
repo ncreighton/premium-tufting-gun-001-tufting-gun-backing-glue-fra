@@ -1,0 +1,2 @@
+# premium-tufting-gun-001-tufting-gun-backing-glue-fra
+Tired of rummaging through piles of backing glue bottles and mismatched frames? Your tufting gun deserves a dedicated command center.  This template eliminates the chaos of managing tufting supplies by centralizing your gun maintenance, glue inventory, frame library, and project timelines into one synchronized Notion dashboard. No more lost drying
